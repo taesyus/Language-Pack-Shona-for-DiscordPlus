@@ -1,0 +1,1 @@
+# Language-Pack-Shona-for-DiscordPlus
